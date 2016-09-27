@@ -1,1 +1,3 @@
-# 78888
+Hi!
+Never learnt coding earlier
+i love eating chinese.
